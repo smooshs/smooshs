@@ -1,1 +1,1 @@
-i luv c++ but I suk at it :(
+i luv c++ and csharp but I suk at it :(
